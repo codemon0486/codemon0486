@@ -5,7 +5,7 @@
 
 
   
-   ### 📫How to teach me **john.wang960804@gmail.com**
+   ### 📫How to reach out me **john.wang960804@gmail.com**
 
 </p>
 
